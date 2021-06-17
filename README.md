@@ -1,2 +1,2 @@
 # e-medicine
-Wholesale Medicine Suppyler
+Wholesale Medicine and Cosmetics Suppylier 
